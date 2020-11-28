@@ -4,4 +4,4 @@
 
  *[Download APK]()*
  
-  *[APP Screenshot](https://res.cloudinary.com/ds62zhv7k/image/upload/v1606504335/bYAqUl_tkphek.jpg)*
+  *[APP VIDEO](https://res.cloudinary.com/ds62zhv7k/video/upload/v1606567870/My_Movie_pxahli.mp4)*
